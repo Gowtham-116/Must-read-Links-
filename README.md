@@ -15,7 +15,7 @@
 
 #8. https://www.linkedin.com/posts/rajatgajbhiye_dsa-datastructures-datastructuresandalgorithms-activity-7203976354411749376-T6_X?utm_source=share&utm_medium=member_android
 
-#9. 
+#9. https://www.linkedin.com/posts/rajatgajbhiye_array-dsa-datastructures-activity-7206256422509096961-7OWc?utm_source=share&utm_medium=member_android
 
-#10. 
+#10. https://www.linkedin.com/posts/ashishps1_15-leetcode-problems-to-get-good-at-linked-activity-7206294158251102208-xQqD?utm_source=share&utm_medium=member_android
 
