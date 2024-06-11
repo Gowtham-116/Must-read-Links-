@@ -13,7 +13,7 @@
 
 #7. https://www.linkedin.com/posts/jordancutler1_if-youre-a-developer-looking-to-level-up-activity-7205959902597394433-yTrR?utm_source=share&utm_medium=member_android
 
-#8. 
+#8. https://www.linkedin.com/posts/rajatgajbhiye_dsa-datastructures-datastructuresandalgorithms-activity-7203976354411749376-T6_X?utm_source=share&utm_medium=member_android
 
 #9. 
 
