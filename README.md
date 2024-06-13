@@ -19,3 +19,11 @@
 
 #10. https://www.linkedin.com/posts/ashishps1_15-leetcode-problems-to-get-good-at-linked-activity-7206294158251102208-xQqD?utm_source=share&utm_medium=member_android
 
+#11. https://www.linkedin.com/posts/ashishps1_git-commands-i-used-99-of-the-time-being-activity-7206518146327846912-kvlY?utm_source=share&utm_medium=member_android
+
+#12. https://www.linkedin.com/posts/rajatgajbhiye_dsa-leetcode-dsapatterns-activity-7206875436679704576-Luph?utm_source=share&utm_medium=member_android
+
+#13. 
+
+#14. 
+
