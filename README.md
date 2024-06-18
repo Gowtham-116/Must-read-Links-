@@ -23,7 +23,14 @@
 
 #12. https://www.linkedin.com/posts/rajatgajbhiye_dsa-leetcode-dsapatterns-activity-7206875436679704576-Luph?utm_source=share&utm_medium=member_android
 
-#13. 
+#13. https://www.linkedin.com/posts/akashsinnghh_leetcode-was-hard-learning-these-patterns-activity-7208329410259652608-vRj1?utm_source=share&utm_medium=member_android
 
-#14. 
+#14. https://www.linkedin.com/posts/arpit-adlakha-30691a101_software-engineering-interviews-will-be-10x-activity-7208451438950182912-NA4N?utm_source=share&utm_medium=member_android
 
+#15. https://www.linkedin.com/posts/rajatgajbhiye_dsa-algorithm-datastructures-activity-7207600219893428224-dlbc?utm_source=share&utm_medium=member_android
+
+#16. 
+
+#17.
+
+#18. 
