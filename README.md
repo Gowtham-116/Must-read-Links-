@@ -29,7 +29,7 @@
 
 #15. https://www.linkedin.com/posts/rajatgajbhiye_dsa-algorithm-datastructures-activity-7207600219893428224-dlbc?utm_source=share&utm_medium=member_android
 
-#16. 
+#16. https://www.linkedin.com/posts/curiouslearner_softwaredevelopment-systemdesign-developer-activity-7203931034902605824-srET?utm_source=share&utm_medium=member_android
 
 #17.
 
