@@ -31,6 +31,12 @@
 
 #16. https://www.linkedin.com/posts/curiouslearner_softwaredevelopment-systemdesign-developer-activity-7203931034902605824-srET?utm_source=share&utm_medium=member_android
 
-#17.
+#17. https://www.linkedin.com/posts/akashsinnghh_the-most-common-question-i-get-from-juniors-activity-7211216566258941952-Vgc5?utm_source=share&utm_medium=member_android
 
-#18. 
+#18. https://www.linkedin.com/posts/rajatgajbhiye_dsa-graphs-datastructures-activity-7211329825473503232-Jh4o?utm_source=share&utm_medium=member_android
+
+#19. 
+
+#20.
+
+#21.
