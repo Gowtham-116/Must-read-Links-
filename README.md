@@ -35,7 +35,7 @@
 
 #18. https://www.linkedin.com/posts/rajatgajbhiye_dsa-graphs-datastructures-activity-7211329825473503232-Jh4o?utm_source=share&utm_medium=member_android
 
-#19. 
+#19. https://www.linkedin.com/posts/akashsinnghh_softwaredevelopment-systemdesign-js-activity-7211684673385603074-RPMm?utm_source=share&utm_medium=member_android
 
 #20.
 
